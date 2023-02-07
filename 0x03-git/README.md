@@ -1,1 +1,1 @@
-not_empty
+life is beautiful
